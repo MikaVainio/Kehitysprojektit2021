@@ -1,0 +1,1 @@
+Sprinttiin kuuluva tehtävä
